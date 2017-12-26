@@ -1,1 +1,1 @@
-# a brief note of Spanish alphabet pronunciation
+# A brief note of Spanish alphabet pronunciation
